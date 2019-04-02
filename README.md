@@ -1,2 +1,2 @@
 # Ic850.github.io
-y dale con eso
+<h2>Arellano Ochoa. Miranda Villa.</h2>
